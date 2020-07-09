@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Peace & tranquility
+2. Nature
+3. Challenges
+   1. Physical
+   2. Mental
